@@ -1,1 +1,1 @@
-Let us develop something
+Let us develop something better
